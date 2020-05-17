@@ -12,3 +12,4 @@
 
 Drive link : https://drive.google.com/drive/folders/1h7AMS8th9DDoC_mVOGD_P3wF6CpF3B7x
 
+*PLEASE ACCESS THE DRIVE LINK THROUGH BITS EMAIL ID*
